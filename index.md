@@ -1,37 +1,4 @@
-## Welcome to GitHub Pages
+ The Escapists 2 Free Dowload | Download The Escapists 2 Full PC Game Free
+The Escapists 2 Free Download - If you want to download the escapists 2 for free, you are in the right place, We are currently offering The Escapists 2 Downlaod for the Full Version with multiplayer option enabled and no crack needed, The Escapists 2 is an awesome game game which is way better than the first one,  it is is now available on PC, and  other multiple platforms, hurry up and get your The Escapists 2 Free Download before it's late, don't miss this great opportunity! as we may remove this offer soon. Download the escapists 2 full version with multiplayer as this offer is still available. I guarantee that you will absoloutely like this superb game where you Craft, Steal, Brawl and Escape! It’s time to bust out of the toughest prisons in the world as you return to the life of an inmate in The Escapists 2
 
-You can use the [editor on GitHub](https://github.com/Issamugaming/theescapists2download/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Issamugaming/theescapists2download/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+download at : https://theescapists2freedownload.blogspot.com/
